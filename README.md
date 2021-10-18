@@ -2,7 +2,7 @@
 
 Zharko 42 years old 
 
-Black
+White
 
 Italian
 
